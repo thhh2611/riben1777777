@@ -20,4 +20,4 @@
 
 平台全站启用隐私无痕模式，不保存记录、不追踪数据，保障每一位用户的浏览安全。现在就点击任意链接，体验2025年最纯净的日本AV平台！
 
-<span style="display:none;">[Canonical link]  (  ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/thhh2611/riben1777777 ）</span> 
